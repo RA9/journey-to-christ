@@ -1,2 +1,3 @@
 # A Journey to Christ
-A self-absorbing journey in search of God through the scriptures.
+
+Greetings, fellow believers and those seeking the light of **Christ Jesus**. I extend a warm welcome to all as we embark on this spiritual journey through the scriptures. I am thrilled to share this path with you, filled with enriching moments and profound insights. While this journey may not always be smooth, remember that moments of doubt or discouragement are not signs of weakness but opportunities to lean on the **Holy Spirit**, our eternal comforter. Let the scriptures be your guiding light, illuminating the path ahead and strengthening your resolve. My writings will delve into my personal experiences, encounters with Christ, and the scriptures' profound teachings, all in service of God's glory. Join me as we embark on this transformative journey together.
